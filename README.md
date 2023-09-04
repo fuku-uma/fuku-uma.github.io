@@ -1,0 +1,1 @@
+# fuku-uma.github.io
